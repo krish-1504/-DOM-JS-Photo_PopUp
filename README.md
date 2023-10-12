@@ -1,1 +1,1 @@
-![035989ff-5d4e-47e0-939f-379506587106](https://github.com/krishsuthar1504/-DOM-JS-Photo_PopUp/assets/131298127/39f65ab8-c8b5-4164-87c0-d2c7d223dc92)
+![6070ce8f-75f0-414f-b512-694981edc7e6](https://github.com/krishsuthar1504/-DOM-JS-Photo_PopUp/assets/131298127/8ceb648d-1789-4e7b-9062-e786cbe189d3)
